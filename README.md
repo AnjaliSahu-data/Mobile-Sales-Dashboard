@@ -55,14 +55,3 @@ This is one of my practice projects as I build my portfolio.
 
 🔗 LinkedIn Profile: https://www.linkedin.com/in/anjali-sahu-analyst/
 📧 Email: ms.anjalisahu@gmail.com
-
-
-
-
-
-
-
-
-
-Ask ChatGPT
-Un
